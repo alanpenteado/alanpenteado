@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @alanpenteado
-- 👀 I’m interested in... jogar  free fire
+- 👋 Olá, me chamo Allan Penteado
+- 👀 I’m interested in... jogar  free fire e conhecer novas tecnoligias.
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...melhorar o meu comporta em sala de aula
 - 📫 How to reach me ...
